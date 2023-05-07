@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DeckerDreams
-- 👀 I’m interested in cool ptojects and coding/development opportunities
+- 👀 I’m interested in cool projects and coding/development opportunities
 
 email: jcd163@med.miami.edu
 
